@@ -1,2 +1,2 @@
 # prework-study-guide
-Notes for prewok
+Notes for prework
